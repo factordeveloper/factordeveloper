@@ -19,7 +19,7 @@
 
 - 📫 Feel free to reach me out **<a href="mailto:felipeherrerapinzon@gmail.com" target="blank">felipeherrerapinzon@gmail.com</a>**
 
-- 💼 I’m currently Working on Mobile Apps Develop
+- 💼 I work on Mobile Apps Develop
 
 - 🤝 I’m available for freelancing.
 
